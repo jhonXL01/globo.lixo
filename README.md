@@ -1,1 +1,1 @@
-# globo.lixo
+# globo.lixo.com
